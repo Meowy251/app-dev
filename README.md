@@ -10,3 +10,10 @@ Refusing to be beaten by someone who barely attends school, Fujino devotes herse
 Graduation day arrives, and Fujino is asked to deliver Kyomoto's graduation certificate to her. Through chance, the two end up coming face to face, and their unexpected meeting will end up having consequences far beyond what either of them could ever predict.
 
 With it's well written story and melodramatic scene which captures Ayumu and Kyomoto friendship and love over creating a manga and how they ended up separating won the hearts of many viewers especially me. I love how all the scenes are captured well and you can feel their excitement and how the music go well with each other. I also love the story itself from the beginning till the end as how Ayumu and Kyomoto bonded with each other.
+
+**Favorite Quotes**
+>*"Dont come out"*
+
+>*"I don't even like drawing manga" - Ayumu Fujino*
+
+>*"I give up" - Ayumu Fujino*
